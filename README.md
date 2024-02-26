@@ -1,3 +1,4 @@
+I create this to scam my idiot friend 
 No ban Gta V By 0xxzc 
 
 1.Go to files/Https.txt  and fill it
